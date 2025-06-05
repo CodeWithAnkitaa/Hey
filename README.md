@@ -7,9 +7,13 @@ Excited to keep building, learning, and connecting with other devs and designers
 
 ________________________________________
 
-👩🏻‍💻 Ankita Bandal 
+👩‍💻 Ankita Bandal
 
-🐱 Let's Code!
+😺 Let's Learn!
+
+🚀 Passionate about building creative, user-friendly applications
+📚 Always learning, always growing
+
 
 ________________________________________
 
